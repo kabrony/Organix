@@ -2,7 +2,7 @@
                                    
                                          Goals and allocation of resources
                              
-   We are a ( DAO )                                                                      Decentralized Autonomous Organization  
+   We are a ( SDAE ). 
   
   
   
