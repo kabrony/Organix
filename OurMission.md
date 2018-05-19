@@ -1,18 +1,16 @@
-                                    Sustainable Decentralize Autonomous Ecosystem 
-                                   
-                                         Goals and allocation of resources
-                             
-   We are a ( SDAE ). 
+                                    Sustainable Decentralize Autonomous Ecosystem
+                                                     (SDAE)
+                                                     
+                                                     
+                                                      I  
+                                                      
+  i. Sustainable. 
+ ii. Decentralize. 
+iii. Autonomus.
+       
+                                                      II
+  i. Allocate resources for natural disasters.
+ ii. Education (Peramculture, Nutrition, Consciousness).
+iii. Research and development to develop Sacred Geometry Computer Language.
+ iv. Allocate resources for enviormental emergencies. 
   
-  
-  
-  
-   Sustainable Ecosystem                                                   Virtual Natural  
-   Education                                                               Blockchain Ecosystem PermaCulture   
-   Natural Disasters                                                       Deploy 10% of assets  
-   Empowerment                                                             Fund Ecosystems bounties all fields
-   Research & development                                                  Sacred geomerty Computer language ( Open Source )
-
-                                         
-                                         
-                                         http://organix.webflow.io
