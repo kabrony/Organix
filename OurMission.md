@@ -22,7 +22,7 @@ iii. Autonomus.
   
   
   
- ii. Education (Peramculture, Nutrition, Consciousness).
+ ii. Education (Permaculture, Nutrition, Consciousness).
  
  
  
