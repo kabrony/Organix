@@ -2,35 +2,8 @@
                                                      (SDAE)
                                                      
                                                      
-                                                      I  
-                                                      
-  i. Sustainable. 
-  
-  
- ii. Decentralize. 
- 
- 
- 
-iii. Autonomus.
-
-
-
-
-       
-                                                      II
-  i. Allocate resources for natural disasters.
-  
-  
-  
- ii. Education (Permaculture, Nutrition, Consciousness).
- 
- 
- 
- 
-iii. Research and development to develop Sacred Geometry Computer Language.
-
-
-
-
- iv. Allocate resources for environmental emergencies. 
-  
+   Our Mission help our planet, is time to make a difference.
+   
+              Not to improve our position but in building a decentralize autonomous Organzation to achieve one goal of clean healthy  jungles, oceans, farms, parks, infrastructure in a  new paragimn to bring simplicity to our lives with a more structure environment , simple goal in mind take care of our ECOSYSTEM.
+              
+              11:11
