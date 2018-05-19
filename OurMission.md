@@ -32,5 +32,5 @@ iii. Research and development to develop Sacred Geometry Computer Language.
 
 
 
- iv. Allocate resources for enviormental emergencies. 
+ iv. Allocate resources for environmental emergencies. 
   
